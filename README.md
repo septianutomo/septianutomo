@@ -10,8 +10,8 @@
 
 > Motivation
 > 1. Ing Ngarsa Sung Tulada | In Front Giving Examples
-> 2. Ing Madya Mangun Karsa | In the Middle of Building Will
-> 3. Tut Wuri Handayani | Behind Giving Encouragement
+> 2. Ing Madya Mangun Karsa | In the middle, creating initiative or enthusiasm.
+> 3. Tut Wuri Handayani | From behind, giving encouragement and direction.
 
 - 📫 How to reach me [Email Me](mailto:seuro27@gmail.com) :email:
 - ⚡ Fun fact: I am always eager to learn new things and face new challenges.
